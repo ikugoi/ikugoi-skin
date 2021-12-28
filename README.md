@@ -9,5 +9,5 @@
 
 #  [【Mrekk 3.0】 - Aristia](https://drive.google.com/file/d/1ssj_aBMx4cqZLjUaX62QIVdXcTpbKQWv/view?usp=sharing)![Image](https://i.imgur.com/zmtyrwh.png)
 
-# Spazza17 Fumo Fade(https://drive.google.com/file/d/1su9Mf-o4N9YRa2gn5-p1NWQoKjyWnU8N/view)![Image](https://user-images.githubusercontent.com/71230537/147388327-845b4100-c1b8-4a8a-b406-4752347bee09.jpg)
+# [ - # Spazza17 v2 [Fumo Fade]](https://drive.google.com/file/d/1su9Mf-o4N9YRa2gn5-p1NWQoKjyWnU8N/view)![Image](https://user-images.githubusercontent.com/71230537/147388327-845b4100-c1b8-4a8a-b406-4752347bee09.jpg)
 
